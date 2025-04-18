@@ -1,1 +1,3 @@
-# COMPETENCIA-AI4ENG-UDEA---Semestre-2025-1
+Quelix Xiomara Pérez Alzate
+Cédula: 1020403151
+Programa: Ingeniería de Sistemas
